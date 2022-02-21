@@ -1,1 +1,1 @@
-## Materials coming soon!
+## Materials now available for Day One.
