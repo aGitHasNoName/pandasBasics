@@ -1,1 +1,1 @@
-## Materials now available for Day One.
+## Materials now available for Day One and Day Two.
